@@ -1,1 +1,0 @@
-# Site - Galeria de Imagens 
